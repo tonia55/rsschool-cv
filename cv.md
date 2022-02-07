@@ -1,5 +1,7 @@
 # Anton Petrovic  
-Vilnius  apetrovicam@gmail.com  +370 600 16771  
+Vilnius  
+apetrovicam@gmail.com  
++370 600 16771  
   
 ## Work Experience:  
 **Project Manager.** UAB Momento Games - Vilnius  
